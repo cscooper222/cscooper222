@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Chelsea
+- 👀 I’m interested in reading, live music, cooking, pilates, travel, football, creative writing, correspondence, scouting, volunteering, community service, trash pickup, planting trees, parenting, coffee
+- 🌱 I’m currently learning Scottish history, Roblox & Minecraft, home improvements, scouting leadership
+- 💞️ I’m looking to collaborate on anything & everything that serves to better inform my understanding of audience & purpose in any situation or mode of communication
+- 📫 Leave me a message if you want to chat!
